@@ -1,5 +1,7 @@
+# Park Cheol Jong
+
 ## Quentitative Researcher
-- wanna
+- Algorthim trading (ing)
 
 ## Interest
 - Quentitative investment/trading
